@@ -24,4 +24,4 @@ Jessica Capoquian
 Angelica M. Abeabe
 Harvey D. Gultiano
 Princess L.Salvador
-dioric, ferlyn mae 
+Ferlyn Mae Dioric
